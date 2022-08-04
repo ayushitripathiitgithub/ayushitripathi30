@@ -9,8 +9,7 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning ...expertise
 - 👯 I’m looking to collaborate on ...Knowledge Sharing
 - 🤔 I’m looking for help with ...Anybody
-- 💬 Ask me about ...
 - 📫 How to reach me:...trailblazerayushi30@gmail.com
-- 😄 Pronouns: ...
+- 😄 Pronouns: ...Passionate,Hardworking,Flexible
 - ⚡ Fun fact: ...
 -->
