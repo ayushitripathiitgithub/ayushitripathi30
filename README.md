@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with ...Anybody
 - 📫 How to reach me:...trailblazerayushi30@gmail.com
 - 😄 Pronouns: ...Passionate,Hardworking,Flexible
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ...Do or Die
 -->
